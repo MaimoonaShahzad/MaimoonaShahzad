@@ -1,2 +1,2 @@
-## Hi there, I am Maimoona-Shahzad
+## Hi there, I am MaimoonaShahzad
 Computer Engineer
